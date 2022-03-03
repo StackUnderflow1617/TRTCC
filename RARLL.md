@@ -1,5 +1,5 @@
 # How a Segregated Regiment of Japanese Americans Became One of WWII’s Most Decorated
-n January 1943, President Franklin Delano Roosevelt and his War Department abruptly reversed course by allowing Japanese Americans to enlist in the U.S. Army in the fight against Germany and Japan.
+In January 1943, President Franklin Delano Roosevelt and his War Department abruptly reversed course by allowing Japanese Americans to enlist in the U.S. Army in the fight against Germany and Japan.
 
 This was not a foregone conclusion: The draconian mass removal and incarceration of 120,000 Japanese Americans had been justified as a military necessity—and continued to be enforced. Two-thirds of those incarcerated were American-born Nisei, second-generation citizens; one-third were Issei, Japan-born immigrants, prohibited by law from applying for naturalization.
 
